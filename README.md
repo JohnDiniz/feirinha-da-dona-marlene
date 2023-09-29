@@ -19,4 +19,4 @@ Até o final do horário da aula 😄 (entregue até onde conseguiu fazer)
 
 - Por favor, apenas uma entrega por dupla!
 
-[T10 | Onboarding - Entregas de Práticas](https://respondea.typeform.com/to/QkVku8ar)
+[T10 | Onboarding - Entregas de Práticas](https://respondea.typeform.com/to/QkVku8ar)# feirinha-da-dona-marlene
